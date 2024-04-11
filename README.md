@@ -1,16 +1,14 @@
-### Hi there 👋
+### Howdy 🤠👽
+( ͡° ͜ʖ ͡°)
 
-<!--
-**nadia-drexel/nadia-drexel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I have to make this for a class and I don't know what I'm doing (◕‿◕✿)
 
-Here are some ideas to get you started:
+### About me ⊂(◉‿◉)つ
+I'm studying for my Master's in Library and Information Science |
+I'm an Aquarius 🌊 |
+I have a cat |
+![me](https://gifdb.com/images/high/cute-cat-pixel-dancing-nc9kgkrkkwr9p1ez.gif)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
